@@ -5,5 +5,5 @@
 -----------------------------------------------------
 
 ## sewa bot sung wa aja
-- [Dana](https://j.top4top.io/p_20532posd1.jpg)
-- [Ovo](https://h.top4top.io/p_2053vk0uw1.jpg)
+- [Dana](https://link.dana.id/qr/5nvtaxou)
+- [Ovo](https://link.dana.id/qr/5nvtaxou)
